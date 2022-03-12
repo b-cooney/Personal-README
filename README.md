@@ -2,6 +2,9 @@
 
 ### What is this?
 
+- Just like any README file, this is an easy way to answer questions that you may have regarding how I work and collaborate with you
+- Having a document like this helps me clarify my ideas and valuess
+
 ### What I value
 
 ### My principles 
