@@ -1,24 +1,24 @@
 # Personal Readme
 
-## What is this?
+### What is this?
 
-## What I value
+### What I value
 
-## My principles 
+### My principles 
 
-## My assumptions
+### My assumptions
 
-## My availability
+### My availability
 
-## How I can help you
+### How I can help you
 
-## How you can help me
+### How you can help me
 
-## Your development
+### Your development
 
-## Feedback
+### Feedback
 
-## One on ones 
+### One on ones 
 
-## Other info
+### Other info
 
