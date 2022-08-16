@@ -1,7 +1,7 @@
 # Personal README
 
 > *In Progress!* </p>
-> *This document is still b eing actively worked on and may not be complete at the time you are viewing it.*
+> *This document is still being actively worked on and may not be complete at the time you are viewing it!*
 
 ### What is this all about?
 
