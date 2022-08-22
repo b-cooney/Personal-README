@@ -29,6 +29,11 @@
 - Fearlessness
 
 ### My assumptions
+- You're a busy person just like me.
+- What you do at work isn't your whole life, but that you do bring your whole self to work. 
+- That if you're having trouble you'll ask or let me know, and will not keep it a secret or bury it.
+- That you're taking the time to reflect and learn as you go.
+- Lastly, please know that I always assume positive intent with anything that you do.
 
 ### My availability
 - I am available to you whenever you need me, though I do ask that you try your best to utilize the time we have already scheduled together. With that said, During business hours I will respond to any message that comes to me same day, usually same hour when feasible. 
