@@ -19,6 +19,7 @@
 - I usually prefer a quick decision and have a bias for action.
 - I prefer people coming to their own decisions/solutions and then letting me know how I can help (as opposed to asking for permission or direction). I believe in you! 
 - I personally place a lot of importance on how the story of our team is told/sold to other teams and users. I place a lot of value in how things feel as much as how they are. 
+- Just because I said something doesn't mean those are the orders and you need to jump; similarly, just because I want to talk to someone else about something doesn't mean I'm discounting or undercutting you. I value open communication very much and like to make decisions with as much input as I can get and with as much transparency as I can give.
 
 ### What I value
 
